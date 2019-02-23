@@ -1,13 +1,5 @@
 # Pascal Fares à changer quelque chose
 
-totot dg'd
-
-d
-fgz
-g
-cx
-cx
-h
 
 [cofares](http://www.cofares.net)
 
